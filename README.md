@@ -1,3 +1,3 @@
-・☁️ **Discord Javascript/Python/Typescript developer**
+・☁️ **Javascript/Python developer**
 
-[![Discord](https://lanyard.cnrad.dev/api/1222210757329162281?theme=light&idleMessage=chill)](https://discord.com/users/1222210757329162281)
+[![Discord](https://lanyard.cnrad.dev/api/1259224585119858840?theme=light&idleMessage=chill)](https://discord.com/users/1259224585119858840)
